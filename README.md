@@ -1,1 +1,0 @@
-# Sesame-Street-Character-Quiz
